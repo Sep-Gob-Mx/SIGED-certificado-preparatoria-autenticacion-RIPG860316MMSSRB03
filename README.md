@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RIPG860316MMSSRB03
+RIPG860316MMSSRB03
